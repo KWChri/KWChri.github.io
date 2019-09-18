@@ -1,1 +1,1 @@
-[Link to personl GitHub account](kwchristopher.github.io)
+[Link to personal GitHub account](kwchristopher.github.io)
